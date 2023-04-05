@@ -24,4 +24,4 @@ Have a question? No worries! Front comes with 6 months of free support. We take 
 
 ### Need Front Template customization? ###
 
-We offer affordable, professional and trendy customized design solutions, solely for your own projects! Front Template can be easily customized with its cutting-edge components and features. However, if you feel you need any further customization please drop us a message at https://htmlstream.com/hire-us and our dedicated team will assist you with your inquiries.
+We offer affordable, professional and trendy customized design solutions, solely for your own projects! Front Template can be easily customized with its cutting-edge components and features. However, if you feel you need any further customization please drop us a message at https://htmlstream.com/hire-us and our dedicated team will assist you with your inquiries.# hv
